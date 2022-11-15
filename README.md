@@ -31,8 +31,6 @@ I believe what I can do a great work in the world of Security of Information, be
 Security and privacy are essential nowadays, where our lifes stay in our hands with a smartphone or our jobs doned in a computer.
 
 Ok, it's not a blog, but if you are reading this, you can understand a little about what I'm doing and thinking about this new project of my life.
-Specially if you are from a company of security in Lithuania 👀
-
 
 
 ----------
